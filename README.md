@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-LECJ950525HNLLNR02
+LECJ950525HNLLNR02
